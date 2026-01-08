@@ -1,5 +1,5 @@
 # Hello World, I'm Hitesh Kumar Singh  
-### known as **Hiteshwardev** ⚡
+### aka **Hiteshwardev** ⚡
 
 ---
 
